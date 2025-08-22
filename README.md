@@ -1,0 +1,2 @@
+# legenda-awakening
+isekai
